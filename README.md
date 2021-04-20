@@ -11,8 +11,6 @@ Parafi Capital is an alternative investment firm with a unique focus on the fint
 
 ### Where to find us
 
-San Francisco — [600 California St., 11th Floor](https://goo.gl/maps/wKSwW28CvU5UYN8Y7)
-
 You can reach us via email at <b>info@parafi.capital</b>
 
 ----
